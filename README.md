@@ -1,2 +1,0 @@
-# ryanovuser.github.io
-Ryanov
